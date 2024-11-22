@@ -2,8 +2,8 @@
 - 👀 I’m interested in developing , gaming and solving math problems 
 - 🌱 I’m currently learning frontend web development 
 - 💞️ I’m looking to collaborate on nun
-- 📫 How to reach me ig- @silenthill4theroom666
-- 😄 Pronouns: He/Him
+- 📫 How to reach me ig- @morbidicallydecomposer2001
+- 😄 Pronouns: He/Him 
 - ⚡ Fun fact: I have schizophrenia 
 
 <!---
